@@ -1,4 +1,4 @@
-# 
+# professional nft wash trading bot | multi-chain-support + collection-scanning offers the most advanced nft wash trading bot, with multi-chain-support and collection-scanning.
 
 
 
